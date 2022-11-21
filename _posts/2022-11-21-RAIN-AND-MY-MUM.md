@@ -5,6 +5,8 @@ author: Yumeth Athukorala
 tags: mom
 ---
 
+<img src="flora-g1abd5cf23_1280.jpg" alt="rain" align="center" width="200"/>
+
 The day was misty as birds flew to their dry nests as they chirped on the way. Dark clouds gathered around as powerful gusts of wind made trees of any size sway back and forth. Soon, in the blink of my eye, crystal clear droplets with many shapes and sizes fell to Earth as they took the heat away and cooled it down. Oh my god, it was raining and the rain had made trees and fruits shine as bright as the stars. "Rainy days are the best." I whispered to myself. A few seconds later, suddenly, the rain the reminded me of someone very special…  MY MUM!!
 
 She is just like the wonderous rain. Thousands of thoughts came to my mind.
