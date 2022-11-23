@@ -9,6 +9,7 @@ Sally was a very gorgeous star,
 
 However, Sally’s bright beautiful light,
 <br/>Shone up the super dark night.
+<!--more-->
 
 Thanks to her amazing glow,
 <br/>All the others could see it flow.
